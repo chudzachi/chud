@@ -1,2 +1,1 @@
-# HEY chud
-Izachi is a Mart recolored to the roblox noob's colors
+Izachi is a Mart recolored to the roblox noob's colors,
